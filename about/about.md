@@ -1,0 +1,1 @@
+Patrick Bradshaw is an Assistant Professor of Epidemiology whose research is centered on the identification of factors related to obesity-related chronic disease outcomes, including cardiometabolic disorders and cancer survival. His work also includes the application and development of epidemiologic methods to advance research in these substantive areas.
